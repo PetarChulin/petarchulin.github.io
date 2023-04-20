@@ -1,4 +1,4 @@
-# [check out my CV](https://petarchulincv.web.app)
+# [check out my CV](https://petarchulincv.web.app/)
 
 
 
